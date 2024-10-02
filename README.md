@@ -8,7 +8,7 @@ meu nome é isadora gonçalves
 
 ### Você entar em contato comigo 📧
 
-goncalves.rocha.isadora@gmail.com
+goncalves.rocha.isadora@escola.pr.gov.br
 
 @risaahx
 
